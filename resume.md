@@ -2,9 +2,9 @@ Sophia Strickland
 
 sophia.strickland@gmail.com
 
-http://www.sophiastrickland.com
+https://www.washington.edu/strategicplanning/husky-seed-fund/
 
-http://www.linkedin.com/in/sophiastrickland
+https://geography.washington.edu/geodat-society-geography-and-data-science 
 
 
 GIS, Data Science, and Informatics student with a background in online Personal Training and Customer Service. I am currently the Finance Officer leading a team of 4 for "EverybodyHacks," an interdisciplinary hackathon, and the President of the Society for Geography: Data Science. I spent two years as an Army ROTC Cadet and served as Joint Color Guard Commander and a Team Leader.
