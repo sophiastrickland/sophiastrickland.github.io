@@ -1,4 +1,4 @@
-Sophia Strickland
+**Sophia Strickland**
 
 sophia.strickland@gmail.com
 
@@ -19,7 +19,7 @@ University of Washington, Seattle, Wa (Expected Graduation: December 2023)
 •	Finance Lead of EverybodyHacks, an interdisciplinary hackathon
 
 
-Work History
+**Work History**
 
 Personal Trainer (Coach)
 Angie Smitherman Personal Training, Bellevue, WA/ (September 2019- Present)
