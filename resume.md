@@ -10,7 +10,7 @@ http://www.linkedin.com/in/sophiastrickland
 GIS, Data Science, and Informatics student with a background in online Personal Training and Customer Service. I am currently the Finance Officer leading a team of 4 for "EverybodyHacks," an interdisciplinary hackathon, and the President of the Society for Geography: Data Science. I spent two years as an Army ROTC Cadet and served as Joint Color Guard Commander and a Team Leader.
 
 
-University of Washington, Seattle (Seattle, WA)
+University of Washington, Seattle, Wa (Expected Graduation: December 2023)
 •	Geography: Data Science Major
 •	Informatics Minor
 •	Previous Army ROTC Cadet and Scholarship Recipient
